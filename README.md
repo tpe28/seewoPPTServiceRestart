@@ -16,5 +16,6 @@
 
 ![afdian-MisakaNo.jpg](https://s2.loli.net/2021/12/25/SimocqwhVg89NQJ.jpg)
 
-## 交流群
-[Telegram](https://t.me/misakanetcn)
+## ~~交流群~~ 墓碑
+~~[Telegram] (https://t.me/misakanetcn)~~  
+[Telegram Channel](https://t.me/misakano)
